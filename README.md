@@ -1,4 +1,4 @@
-For utterances comments.
+For utteranc.es comments.
 
 https://www.sunxiaokong.xyz
 
